@@ -1,0 +1,1 @@
+# hotatekainomodel.github.io
